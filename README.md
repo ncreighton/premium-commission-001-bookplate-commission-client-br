@@ -1,0 +1,2 @@
+# premium-commission-001-bookplate-commission-client-br
+Tired of herding scattered emails, forgotten details, and endless proof revisions when creating personalized bookplates? The Bookplate Commission Client Brief and Proof Log gives you one centralized Notion hub to capture every client wish, track every artwork iteration, and lock in final approval—so you never lose a treasured detail again.  This te
